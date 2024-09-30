@@ -1,1 +1,1 @@
-# Team41
+# Migthy Ducks Hockey League
